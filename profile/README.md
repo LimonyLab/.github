@@ -5,7 +5,7 @@
 
 ### 🌱 Discover a New Approach to Health 
 
-Discover a new approach to leading a healthier life and finding balance with **LimonyLab**. Our platform leverages the power of AI and machine learning to guide you towards improved well-being and a harmonious lifestyle within the corporate world.
+Discover a new approach to leading a healthier life and finding balance with **LimonyLab**. Our platform guides you towards improved well-being and a harmonious lifestyle within the corporate world.
 
 ---
 
